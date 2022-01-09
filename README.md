@@ -1,0 +1,1 @@
+[これ](https://www.youtube.com/watch?v=w7fRudLTLhI&t=321s)の概要欄のやつ
